@@ -1,1 +1,0 @@
-# alterimiya.github.io
